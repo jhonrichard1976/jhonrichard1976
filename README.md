@@ -21,7 +21,7 @@
 
 Si compartes intereses similares o tienes alguna pregunta, ¡no dudes en contactarme! Estoy emocionado por las oportunidades de aprendizaje y colaboración que este mundo tecnológico tiene para ofrecer.
 
-Puedes encontrarme en [LinkedIn]( https://www.linkedin.com/in/jhon-richard-espitia-balaguera-0b095a190/) y [Twitter](https://twitter.com/rychy499).
+Puedes encontrarme en [LinkedIn]( https://www.linkedin.com/in/jhon-richard-espitia-balaguera-0b095a190/) y [Twitter](https://twitter.com/richi499).
 
 ¡Gracias por visitar mi perfil!
 
